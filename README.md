@@ -60,7 +60,7 @@ Here are some of the technologies and tools I work with:
 I'm always open to collaborating on interesting projects or discussing new ideas. Feel free to reach out to me via:
 
 - **Email:** mhdanware1@gmail.com
-- **LinkedIn:** https://github.com/anwarjihad
+- **LinkedIn:** https://www.linkedin.com/in/muhammad-anwar-5a6217216/
 
 ---
 
